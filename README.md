@@ -1,1 +1,1 @@
-My first readme
+you are a royal priesthood
